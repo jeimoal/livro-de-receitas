@@ -5,3 +5,4 @@
 Receitas disponíveis:
 1. Strogonoff de Frango
 2. Pavê
+3. Escondidinho de carne do sol

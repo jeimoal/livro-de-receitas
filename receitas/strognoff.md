@@ -2,27 +2,27 @@
 
 ##Ingredientes
 
-- _3 peitos de frango cortados em cubos_
+- 3 peitos de frango cortados em cubos
 
-- _1 dente de alho picado_
+- 1 dente de alho picado
 
-- _sal e pimenta a gosto_
+- sal e pimenta a gosto
 
-- _1 cebola picada_
+- 1 cebola picada
 
-- _2 colheres (sopa) de maionese_
+- 2 colheres (sopa) de maionese
 
-- _1 colher de manteiga_
+- 1 colher de manteiga
 
-- _1/2 copo de ketchup_
+- 1/2 copo de ketchup
 
-- _1/3 copo de mostarda_
+- 1/3 copo de mostarda
 
-- _1 copo de cogumelos_
+- 1 copo de cogumelos
 
-- _1 copo de creme de leite_
+- 1 copo de creme de leite
 
-- _batata palha a gosto_
+- batata palha a gosto
 
 ##Modo de Preparo
 
